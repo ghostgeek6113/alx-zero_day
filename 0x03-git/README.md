@@ -1,1 +1,1 @@
-Week 3 ALX
+Week 3 ALX: Starting to code today, so cool
